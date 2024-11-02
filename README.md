@@ -16,7 +16,6 @@
 - Educational content creation
 
 📫 How to reach me:
-- Email: your-email@example.com (replace with your actual email)
 - LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/harira-zadran-66b42128a)
 
 😄 Pronouns: She/Her
